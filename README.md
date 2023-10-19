@@ -1,0 +1,1 @@
+# lesa6-azure
